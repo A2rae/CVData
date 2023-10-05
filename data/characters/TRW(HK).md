@@ -101,7 +101,20 @@ Sometimes has:
 ### Other Notes
 
 Notable Relationships
-- Laverne: 
+- Laverne: Boss-Employee-ish
+- Kyo (pre-1st death): Love interest, friends
+- Kyo (post-death): Enemies, Boss-Employee
+- Rae: Sidekick, close friend
+- Simon: Friendly rivals
+- Euterpe: Love interest, close friend , other sidekick
+- Mnemosyne: Past-acquaintances , currently Tristan’s adoptive kid
+- Bory: Tristan’s adoptive kid
+- Foxine: Friend
+- PG!Frisk: Friend
+- Citrus: Employee-Boss relationship, still friends tho
+- Phoenix: Rivals
+- Ringo: Acquaintance
+- Wishy: Enemy
 
 Other preferences & notes
 - His love language is definitely words of affirmation, he is a skrunkly <3
