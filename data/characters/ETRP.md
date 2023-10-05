@@ -1,0 +1,1 @@
+*A freelance weapon engineer under the Unnamed & Co, and the Protagonist of the Central AU. While he may look intimidating, that is a far-fetched assumption about his personality, as he is by far the least sour or bitter of all characters around. Also a little too proficient in fighting to not be trained in warfare before…*
