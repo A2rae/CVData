@@ -1,3 +1,7 @@
+*The 2nd administrator of Citrusverse, a bartender and director of Unnamed & Co. A rather friendly, charming, mysterious and sometimes-irresponsible individual, but is oddly hardworking when he needs to. Still, he is odd and unpredictable at times…
+Knows more than he should.*
+
+
 ## General Info
 
 Name:  Tristan Wong
