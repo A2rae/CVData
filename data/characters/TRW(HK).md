@@ -16,6 +16,8 @@ The Judge (CV Title)
 
 The Prophet (Other CV Title)
 
+Dad (Suni,Bory)
+
 Kayla (Deadname)
            
 Gender: Male (Transmasc)
