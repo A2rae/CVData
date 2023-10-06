@@ -8,7 +8,13 @@ Name:  Tristan Wong
 
 Nickname: Hong Kong / HK (Countryhumans)
 
+Hong (Tai)
+
 黃天荊 (Chinese Human Name)       
+
+The Judge (CV Title)
+
+The Prophet (Other CV Title)
 
 Kayla (Deadname)
            
