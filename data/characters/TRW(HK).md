@@ -25,7 +25,7 @@ Gender: Male (Transmasc)
 
 Race: Human (?) / God (T11)
 
-Age: 34  (Actual Age: 370+)
+Age: 34  (Actual Age: 370+) , 1st July
 
 ### Appearance
 
