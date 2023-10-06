@@ -23,7 +23,9 @@ Nickname:
            
 Gender: Male (Transmasc)
 
-Race: Human (?) / God (T11)
+Species: Human (?) / God (T11)
+
+Race: Asian
 
 Age: 34  (Actual Age: 370+) , 1st July
 
