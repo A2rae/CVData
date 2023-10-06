@@ -6,19 +6,20 @@ Knows more than he should.*
 
 Name:  Tristan Wong
 
-Nickname: Hong Kong / HK (Countryhumans)
+Nickname: 
+- Hong Kong / HK (Countryhumans)
 
-Hong (Tai)
+- Hong (Tai)
 
-黃天荊 (Chinese Human Name)       
+- 黃天荊 (Chinese Human Name)       
 
-The Judge (CV Title)
+- The Judge (CV Title)
 
-The Prophet (Other CV Title)
+- The Prophet (Other CV Title)
 
-Dad (Suni,Bory)
+- Dad (Suni,Bory)
 
-Kayla (Deadname)
+- Kayla (Deadname)
            
 Gender: Male (Transmasc)
 
