@@ -47,7 +47,7 @@ Clothing: He used to be sloppy with clothing and he still is now. Usually just w
 
 ### Personality
 
-Temperament: An ISTP. He’s rather laidback and sort of an introverted extrovert. Rather impulsive at times but is fully capable of solving problems. Very much irresponsible, but cares greatly for things he likes and will go to the ends of the world if it means it benefits his favorite people (and doesn’t give an ass about people he doesn’t know). Sassy ass, but can get serious in a blink of an eye.
+Temperament: An ISFP. He’s rather laidback and sort of an introverted extrovert. Rather impulsive at times but is fully capable of solving problems. Very much irresponsible, but cares greatly for things he likes and will go to the ends of the world if it means it benefits his favorite people (and doesn’t give an ass about people he doesn’t know). Sassy ass, but can get serious in a blink of an eye.
 
 Moral/ethical beliefs: Doesn't believe in karma, and is largely a chaotic neutral, as he abides by laws that only benefit the population and virtually disregards every single law that concerns giving power/benefits to law enforcement or the government. Doesn't give a rat's ass about laws in general tbh, and only truly abides with basic human respect.
 
