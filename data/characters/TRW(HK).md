@@ -65,7 +65,7 @@ Dislikes: Getting controlled, naggy people, the government, paying taxes, being 
 
 Fears: Laverne, burdening others, bugs, of loss
 
-Strengths: Planning on the go, close combat, sense of direction, negotiation, pain tolerance
+Strengths: Planning on the go, close combat, sense of direction, negotiation, pain tolerance, mental fortitude of 9000, willingness to adapt, being fairly peaceful
 
 Weaknesses: Struggles to follow plans, being too paranoid, willing to risk everything, and by that, he means EVERYTHING, being irresponsible in anything except work related things, sniping, going headfirst into danger just because he can (and not because he's unaware).
 
