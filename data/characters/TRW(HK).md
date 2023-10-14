@@ -61,7 +61,7 @@ Quirks/eccentricities: Looks towards the sky whenever something odd happens (he'
 
 Likes: Good food, cold environments, entertaining kids, birds, teasing Simon, generally being around tolerable people, (refer to hobbies) , Euterpe <3, rushing into dangerous situations, flying, afternoon naps, gaming (in particular RPGs), exploring, writing
 
-Dislikes: Getting controlled, naggy people, the government, paying taxes, being idle for too long, not being prepared, extremely heavy-tasting food
+Dislikes: Getting controlled, naggy people, the government, paying taxes, being idle for too long, not being prepared, extremely heavy-tasting food, therapists
 
 Fears: Laverne, burdening others, bugs, of loss
 
@@ -81,21 +81,7 @@ Skills: Extreme luck in scenarios that involve chance or in gambling, (limited) 
 
 (T11: Full reality manipulation)
 
-Secrets:
-- He really, really likes Euterpe, he just doesn't want him to get hurt due to the possibility Laverne might find out.
-- He can't stand Simon because he looks awfully similar to Kyo and Tea.
-- He feels really guilty for leaving Tai and the "kids" behind.
-- He has smoked before, but only in T5-7.
-- His white-red flower is his soul, and it's awfully fragile.
-- The dark-red lined tattoo stretching from his neck to the nape of his spine is actually a result of being a Countryhuman (it happens when they are in their civilian appearance).
-- His regeneration relies on consuming lifeforce of dead characters, even so, his regeneration is quite slow, yet he makes up for this by being agile.
-- His power relies on the Citrusverse.
-- He has many connections to other people outside of the Citrusverse.
-- He canonically dislikes therapists.
-- His vision is horrible (nearsightedness), but he doesn’t wear his glasses unless he’s working on paperwork because it’s a hassle to have to wipe them every 50 seconds due to gunpowder and blood.
-- Adding onto the above, he guesses his target’s location by his blurry vision and hearing, but if that doesn’t work he just has no choice but to bust out his power to feel around for any presences.
-- He secretly steals Euterpe’s shotgun sometimes because it’s one of the only shotguns that can satisfy his demanding reloading speed and rough handling mid-battle.
-- T11: Despite being the Administrator of the Citrusverse, he is still limited by the limits of the human body, so he has a whole administrative body consisting of Simon, Rizza, Paperman and Euterpe, with Mnemosyne as its advisor.
+
 
 ### Gear
 
