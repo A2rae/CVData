@@ -65,9 +65,9 @@ Dislikes: Getting controlled, naggy people, the government, paying taxes, being 
 
 Fears: Laverne, burdening others, bugs, of loss
 
-Strengths: Planning on the go, close combat, sense of direction, negotiation, pain tolerance, mental fortitude of 9000, willingness to adapt, being fairly peaceful
+Strengths: Planning on the go, close combat, sense of direction, negotiation, pain tolerance, mental fortitude of 9000, willingness to adapt, being fairly peaceful,work efficiency (despite being a little contemporary with his methods.)
 
-Weaknesses: Struggles to follow plans, being too paranoid, willing to risk everything, and by that, he means EVERYTHING, being irresponsible in anything except work related things, sniping, going headfirst into danger just because he can (and not because he's unaware).
+Weaknesses: Struggles to follow plans, being too paranoid, willing to risk everything, and by that, he means EVERYTHING, being irresponsible in anything except work related things, sniping, going headfirst into danger just because he can (and not because he's unaware), the habit of avoiding his fears and problems
 
 Short term goals: Not dying, living in peace and away from any sort of conflict, keeping income stable. Largely he hasn't thought of anything grandiose due to believing anything is hopeless atp.
 
