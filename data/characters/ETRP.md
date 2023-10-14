@@ -1,1 +1,3 @@
 *A freelance weapon engineer under the Unnamed & Co, and the Protagonist of the Central AU. While he may look intimidating and has a cold front, that is a far-fetched assumption about his personality, as he is by far the least sour or bitter of all characters around, being accommodating and quite sweet and especially self-sacrificial towards people he cares about. But this doesn’t undermine his intelligence in his fields of study and his questionable hobbies of destruction. Also a little too proficient in fighting to not be trained in physical warfare before…*
+
+*(Extra Note: Previously 03 of the X10 Special Operations Squad and its lead gunner.)*
