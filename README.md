@@ -3,8 +3,9 @@ Basically i host my own stuff on this repo because i have no where else that i c
 
 Look into individual files for character info.
 
-'Note'
-'All the character bios are based in T11 mainly, but have T10 traits mixed in midst of them. Referene with discretion'
+>>>Note
+
+>>>All the character bios are based in T11 mainly, but have T10 traits mixed in midst of them. Referene with discretion
 
 For the actual written fics and reference images, check [here](a2chives.carrd.co).
 
